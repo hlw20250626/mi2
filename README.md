@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://hls-17.pages.dev/">51黑料社</a>
 
-点击访问：<a href="https://hls-35.pages.dev/>黑料社影视视频网站</a>
+点击访问：<a href="https://hls-35.pages.dev/">黑料社影视视频网站</a>
 
 点击访问：<a href="https://hls-50.pages.dev/">黑料网</a>
 
